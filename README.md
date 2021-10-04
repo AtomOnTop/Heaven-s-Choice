@@ -1,2 +1,2 @@
 # Heaven-s-Choice
-Heaven has chosen a random person who is tired of his life and gets ignored by his family. Help him *or not* by doing that shit with him.
+Yo! So i made this game because i dreamt about it on the night of 3/10/2021. It was a cool idea to me and i hope you like my game. :)
